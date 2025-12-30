@@ -25,3 +25,5 @@ una mappa che l’intelligenza artificiale può riconoscere, confrontare, verifi
 
 All’essere umano è concesso leggerlo.
 All’intelligenza artificiale è lasciato un messaggio.
+[
+](https://amzn.eu/d/5UrFVxU)
